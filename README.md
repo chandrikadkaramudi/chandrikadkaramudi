@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Currently Student under CSE Branch
+I am a Student
 
 
 ## 🌐 Socials:
